@@ -20,3 +20,7 @@ but words!
 
 [consume combat ration](../combatration/combat_ration.md)
 mmmm combat rations...
+
+
+
+Is this better, guy?
