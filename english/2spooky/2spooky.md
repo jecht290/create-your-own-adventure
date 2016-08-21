@@ -23,4 +23,4 @@ mmmm combat rations...
 
 
 
-shut the fuck up newfag
+Is this better, guy?
